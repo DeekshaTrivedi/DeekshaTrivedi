@@ -1,4 +1,4 @@
-# 💫 About Me:
+                HI I'M DEEKSHA TRIVEDI
 I'm currently doing BTECH.<br>Making efficient command in DSA.<br>funny,ambivert,pasta for life
 
 
